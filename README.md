@@ -34,7 +34,7 @@ https://stiluhr.de/m2/blog-menue.html
 
 Andere Projekte:
 
-https://github.com/creativesoundorg/stiluhr
+https://github.com/creativesoundorg/hugoandmore
 
 Stiluhr bei Youtube:
 
