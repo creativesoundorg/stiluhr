@@ -36,7 +36,7 @@ Andere Projekte:
 
 https://github.com/creativesoundorg/stiluhr
 
-Stiluhr bei Y outube:
+Stiluhr bei Youtube:
 
 https://www.youtube.com/channel/UC4j0P62wk6SbBEAl21Ixf6A/about
 
