@@ -35,3 +35,11 @@ https://stiluhr.de/m2/blog-menue.html
 Andere Projekte:
 
 https://github.com/creativesoundorg/stiluhr
+
+Stiluhr bei Y outube:
+
+https://www.youtube.com/channel/UC4j0P62wk6SbBEAl21Ixf6A/about
+
+Stiluhr bei Facebook:
+
+https://www.facebook.com/stiluhr.de
